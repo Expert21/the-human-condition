@@ -1,5 +1,3 @@
 
 Believe
 
-
-#theology #obedience #faith
